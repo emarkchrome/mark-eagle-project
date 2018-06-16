@@ -28,12 +28,12 @@ I decided to build a woodshed on the south side of the main building as my proje
 
 ## TIME SPENT
 
-Myself: 5hrs
+**Myself:** 5hrs
 
-Boy Scouts: 0hrs
+**Boy Scouts:** 0hrs
 
-Scout Leaders: 2hrs
+**Scout Leaders:** 2hrs
 
-Non-Scout Minors: 0hrs
+**Non-Scout Minors:** 0hrs
 
-Non-Scout Adults: 0hrs
+**Non-Scout Adults:** 0hrs
