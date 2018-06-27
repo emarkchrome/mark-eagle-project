@@ -32,7 +32,7 @@ I began making CAD drawings to produce a rendering of the finished project in ne
 
 ## TIME SPENT
 
-**Myself:** 5hrs
+**Myself:** 6hrs
 
 **Boy Scouts:** 0hrs
 
