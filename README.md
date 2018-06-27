@@ -26,6 +26,10 @@ I met with Dan Walton, my scoutmaster and one of the board members of Pass the T
 
 I decided to build a woodshed on the south side of the main building as my project. I again met with Mr. Walton to go over the process of planning and executing an Eagle project. I left with a detailed plan for how to complete the requirements in order and a project proposal sheet. I am able to access on our troop website a list of previous Eagle scouts and their documents they wrote when planning their own projects.
 
+### June 19, 2018:
+
+I began making CAD drawings to produce a rendering of the finished project in nearly full detail.
+
 ## TIME SPENT
 
 **Myself:** 5hrs
