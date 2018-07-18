@@ -30,6 +30,14 @@ I decided to build a woodshed on the south side of the main building as my proje
 
 I began making CAD drawings to produce a rendering of the finished project in nearly full detail.
 
+### July 11, 2018:
+
+I completely finished the CAD drawings. The only thing left is to tweak the measurements to make workable 2D technical drawings, which I plan to do after my proposal is approved.
+
+### July 17, 2018:
+
+I send the email to get the ok on my finished project proposal. I hope to hear back soon from Mr. Dan Walton; then, I can organize meeting with those from which I need signatures.
+
 ## TIME SPENT
 
 **Myself:** 10hrs
