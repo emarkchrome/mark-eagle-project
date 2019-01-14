@@ -36,15 +36,19 @@ I completely finished the CAD drawings. The only thing left is to tweak the meas
 
 ### July 17, 2018:
 
-I send the email to get the ok on my finished project proposal. I hope to hear back soon from Mr. Dan Walton; then, I can organize meeting with those from which I need signatures.
+I send the email to get the ok on my finished project proposal. When I hear back , I can organize meeting with those from which I need signatures.
+
+### December 22, 2018:
+
+I've put my project on hold for a while and I just quit soccer to dedicate time to my eagle project. I met with Mr. Walton to discuss a timeframe for the project for half an hour.
 
 ## TIME SPENT
 
-**Myself:** 10hrs
+**Myself:** 11hrs
 
 **Boy Scouts:** 0hrs
 
-**Scout Leaders:** 2hrs
+**Scout Leaders:** 3hrs
 
 **Non-Scout Minors:** 0hrs
 
