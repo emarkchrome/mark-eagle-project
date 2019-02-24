@@ -42,13 +42,37 @@ I send the email to get the ok on my finished project proposal. When I hear back
 
 I've put my project on hold for a while and I just quit soccer to dedicate time to my eagle project. I met with Mr. Walton to discuss a timeframe for the project for half an hour.
 
-## TIME SPENT
+### January 13, 2019:
 
-**Myself:** 11hrs
+I just sent my eagle proposal to my project coach for approval. I've put aside a lot of my other important obligations to focus on my eagle project. He said everything was good, but asked for some minor changes.
+
+### January 16, 2019:
+
+I went to a meeting for the Pass the Torch Board of Directors. I handed out a couple copies of my proposal and an image of a rendering of the finished woodshed. I got signatures from everyone on my proposal except the district representative. I got a lot of good advice and some next steps to take. There are still some crucial parts of the project that I must resolve before I can really start. I detailed these in the project plan.
+
+### January 23, 2019:
+
+I reached out to Mr. Christopher Cleasby, the district representative from which I need a signature to begin planning my project. He responded and we set up a meeting at Starbucks.
+
+### January 25, 2019:
+
+I has a quick meeting with my project coach to discuss what I'm going to do next. We addressed a couple of concerns that the board brought up last week. I need to make sure that the City of Melbourne won't have an issue with me cementing fence posts in the ground. Also, I need to figure out exactly what will make up the siding: T1-11 siding or Hardie Board.
+
+### January 29, 2019:
+
+I finally met with Mr. Cleasby at Starbucks. He was very helpful and gave some good suggestions for considerations to keep in mind during this process. He said to refer to the Guide to Safe Scouting in order to regulate who can use what tools and to take all the necessary safety precautions when I have work days. He also asked that I set a more definite timeframe for when I want to complete the project. I got his signature, so I was done with my proposal.
+
+### February 20, 2019:
+
+I have procrastinated doing my project for three weeks, which I am disappointed about. I want to finish this without waiting until the last minute. I had another quick meeting with my project coach to take my bearings. I am trying to make an effort to be active in the troop since I will be leaving soon--I want my board of review to go well.
+
+## TIME LOG
+
+**Myself:** 15hrs
 
 **Boy Scouts:** 0hrs
 
-**Scout Leaders:** 3hrs
+**Scout Leaders:** 6hrs
 
 **Non-Scout Minors:** 0hrs
 
