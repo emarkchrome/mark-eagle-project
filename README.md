@@ -66,6 +66,10 @@ I finally met with Mr. Cleasby at Starbucks. He was very helpful and gave some g
 
 I have procrastinated doing my project for three weeks, which I am disappointed about. I want to finish this without waiting until the last minute. I had another quick meeting with my project coach to take my bearings. I am trying to make an effort to be active in the troop since I will be leaving soon--I want my board of review to go well.
 
+### February 24, 2019:
+
+I just wrote a first draft of my fundraising letter. I outlined how I've worked to achieve Life Scout and how I need to do an Eagle project to achieve Eagle Scout rank. I shared it with my project coach for a second opinion.
+
 ## TIME LOG
 
 **Myself:** 15hrs
