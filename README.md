@@ -70,14 +70,18 @@ I have procrastinated doing my project for three weeks, which I am disappointed 
 
 I just wrote a first draft of my fundraising letter. I outlined how I've worked to achieve Life Scout and how I need to do an Eagle project to achieve Eagle Scout rank. I shared it with my project coach for a second opinion.
 
+### April 17, 2019:
+
+After a lot of back and forth, I got my fundraiser form approved by the district and sent out my donation letters. I now have around $1500 for my project, I will need to evaluate if this is enough or if I will need more. I think I will close donations soon. I just finished logging all my donations so far.
+
 ## TIME LOG
 
-**Myself:** 15hrs
+**Myself:** 18hrs
 
 **Boy Scouts:** 0hrs
 
-**Scout Leaders:** 6hrs
+**Scout Leaders:** 7hrs
 
 **Non-Scout Minors:** 0hrs
 
-**Non-Scout Adults:** 0hrs
+**Non-Scout Adults:** 2hrs
