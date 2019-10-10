@@ -74,6 +74,38 @@ I just wrote a first draft of my fundraising letter. I outlined how I've worked 
 
 After a lot of back and forth, I got my fundraiser form approved by the district and sent out my donation letters. I now have around $1500 for my project, I will need to evaluate if this is enough or if I will need more. I think I will close donations soon. I just finished logging all my donations so far.
 
+### May 5, 2019:
+
+I got most of my donations and ended up with about $1750. This is more than enough for the woodshed.
+
+### June 11, 2019:
+
+I've been busy with finishing school lately, so I haven't concentrated much on my eagle project. Today, I met with Mr. Jack Ghiz and my project mentor, Mr. Walton. I asked for his opinion on materials I plan to use, how I go about building the woodshed. I learned a lot from the meeting and decided to make a few changes to the CAD drawing reflecting them. I decided to use corrugated tin for the roof instead of shingles and HardiePlank lap siding instead of traditional wooden siding.
+
+### June 27, 2019:
+
+I've been working on some merit badge requirements. I still have six before I have all the MBs I need for Eagle rank. I had a meeting with Mr. Walton and showed him the new modifications in my CAD drawing. I am working on finishing my project plan. We put a day on the calendar, Thursday, August 1, to hold the first workday and start the project.
+
+### July 22, 2019:
+
+I've been emailing my project mentor and moving along. Today, after having to cancel a previous time, we went shopping at Home Depot and bought most of the materials that we needed for the project. I walked around and grabbed all the sizes I needed, we checked out, then hauled them by trailer to the worksite.
+
+### July 31, 2019
+
+I had to cancel the first workday because I was sick and thought I might have strep throat. I was also behind on planning. We moved the first day to Saturday, August 3.
+
+### August 2, 2019
+
+I've been working on the planning for the workdays. I've written an agenda and gotten it approved, so we're ready for tomorrow. I asked to borrow a compound saw from one of the scout leaders for the workday.
+
+### August 3, 2019
+
+Today was the first workday. I got to the worksite at about 10:30am and grabbed the tools or materials I needed and brought them to the worksite. It was difficult to find a first aid kit as no one knew where it was. I should have known ahead of time where there was a first aid kit. I got one a few hours into the day. It was difficult to find volunteers because I did not give enough notice to everyone to get enough volunteers. I was able to get enough in the end by rerouting some scouts working on a different project the same day. We started on time with an opening prayer at 12:30pm. I rallied everyone up, gave them a safety briefing, and an overview of the project. Our goal for today was to dig four holes in the ground, put a 4x4x12' into each, then put cement so they stay in place as the foundation for the woodshed. We started trying to map the spots with twine and wooden stakes. It was very difficult to get the volunteers to make a rectangle that was good enough. I asked Rylan, one of the volunteers, who did his project recently, how he mapped it out with the twine. He showed me a different way that worked much better. We mapped out the foundation, marked spots, and started digging. The workday got a lot easier after we knew where to dig. Once we finished digging we were able to get two of the four poles in the ground before it started pouring. I was looking at my agenda throughout the workday to make sure we were staying on schedule. It rained hard for about twenty minutes before we could go outside and continue. I almost had to call it off and postpone. When we went back, we were able to put the last two poles in the ground. When we finished the day's work, I held a closing prayer, thanked everyone for their help, then dismissed them. There was nothing else to do, so me and my brother went home. I was happy that I was able to achieve our goal for today, but I didn't properly plan for this workday. I need to give more notice to the volunteers to decide to signup.
+
+### August 6, 2019
+
+I just wrote a project report and updated my project log.
+
 ## TIME LOG
 
 **Myself:** 18hrs
